@@ -1,2 +1,1 @@
-# electrokundoluk
-ELECTRONNNIY LUNDOLUK
+
